@@ -1,4 +1,4 @@
-
+smart Script for the strongest battlegrounds offers the most advanced the strongest battlegrounds Script, with auto-farm and invisibility. Perfect
 
 
 
